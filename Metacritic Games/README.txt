@@ -1,0 +1,1 @@
+Metacritic game stats from 1995 to 2018
